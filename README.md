@@ -12,9 +12,9 @@
 
 - 💬 Ask me about **Android Developer , Competitive Programming**
 
-- 📫 How to reach me **chandansingha7484@gmail.com**
+- 📫 How to reach me **chandan.developer5224@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1bSvNtjr9Av05L2teqAB7Rc9vF0L_P3gm/view?usp=share_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1GKq7ohW4tViy7uX6qgKugMsaK-jfJp1y/view?usp=sharing)
 
 - ⚡ Fun fact **I am very excited person.**
 
